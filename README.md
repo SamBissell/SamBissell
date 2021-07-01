@@ -5,5 +5,5 @@
 💬 Get in touch! <br/>
 
 📩 sam.bissell@gmail.com <br/>
-💻 sbissell.com <br/>
+💻 www.sbissell.com <br/>
 🐦 @SamuelColgan <br/>
